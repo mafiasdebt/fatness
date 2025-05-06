@@ -15,3 +15,6 @@ int if u like heh... ichance or heh... um i dont really know does anyone like tr
 
 
 WILL UPDATE LATER IM LAZY 
+
+
+I love my partner so much SCREAMS
